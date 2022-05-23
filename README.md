@@ -1,7 +1,7 @@
 # CAT2
  This if cat 2 codes
 
-More Greetings;
+Salute Sir;
 
 we're to push this codes of CAT 2 I and my partner FROM Level 3 IT A, the following are our identifications
 
